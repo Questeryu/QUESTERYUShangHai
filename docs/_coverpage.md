@@ -1,13 +1,13 @@
 # 仅献给在上海七年的青春
 
 
-> 感谢给我成长的每一位
->
+> 感谢给予我成长的每一位
+>心からありがとう
 > 
 >
 > —Questeryu—
 >
-> -Designed By Questeryu Made In ShangHai-
+> 
 >
 > 2020年6月10日于上海浦东机场
 
